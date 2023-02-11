@@ -13,4 +13,120 @@
   - Sits with support: need head, neck, and trunk control
   - Active reaching while sitting
   - Interest in food and eating
-
+- Chair: safest option for eating
+  - Upright seat
+  - Adjustable footplate: knees at 90 degrees
+  - Removable tray
+- Three main approaches when it comes to starting solids:
+  - Spood-fed
+  - Baby-lead weaning
+  - A combination
+- Spoon-fed:
+  - Begins with purees, then pureed fruits, vegetables and meats
+  - Finger-foods typically introduced around 8 months
+  - Benefits:
+    - Eating right from the start
+    - Caregiver has a sense of control
+    - Exposure to many flavors
+  - Drawbacks:
+    - Lack of research
+    - Not developmentally necessary
+    - Risky for picky eating
+    - Potential for missing baby's "I'm full" signs
+    - Delays chewing practice
+- Baby-led weaning
+  - Goes straight for self-feading
+  - Benefits
+    - Research-based safe
+    - Reduces of risk of picky eating
+    - Improved development of oral motor skills
+  - Drawbacks
+    - More gagging at the start, less later
+    - Can be messier
+    - Baby may reject being spood fed
+- Combined approach
+  - Start with a period of spoon feeding at the start, then switch early
+  - Benefits
+    - Potential for "best of both worlds"
+    - Allows for intake and chewing practice
+  - May include same downsides as both other approaches
+- Recommended: first food first with a modified combo approach
+- Remember, babies are resilient. Follow the baby's lead and your intuition.
+- Responsive Spoon Feeding
+  - Prevent picking eating:
+    - Serve the family meal
+    - Give baby control over the eating experience
+  - You can use foods that are naturally pureed (oatmeal, etc) or puree food
+  - Responsive spoon-feeding: hold spoon to the mouth and waits for permission
+- Timing and scheduling meals
+  - One meal per day at first around 6 to 7 months
+  - Aim for times when baby is awake, alert, calm
+  - Consider adding breast milk meal 20 minutes before and after meal
+  - Breastmilk should still be primary source until 11 or 12 months
+  - If baby is fussy, may be best to skip the meal
+  - Sample schedule at 45:45
+  - Baby should pick up foods
+- What to expect from baby at meals
+  - Baby may need you to show it how
+  - Baby might play with food
+  - Baby may spit out food, which is an important skill
+  - If you notice that baby coughs multiple times per meal, mention it to doctor
+  - Do not put fingers in baby's mouth
+  - They might overstuff their mouth, tell them to slow down and remove food
+  - Don't offer new foods if they're crying because they don't like the food
+  - Red flags
+    - Throwing or refusing to pick up food at most meals
+    - Gagging to the point of vomiting at most meals
+  - Contact doctor if you see red flags
+- What food to serve baby
+  - What foods you love, or are seasonal
+  - Vegetables, fruits, whole grains, simply prepared meats
+  - Foods high in iron, serve often
+  - Stewed meats, chicken or beaf liver are good options
+  - Meat served on a bone: beaf/pork/lamb ribs, chicken drumstick
+  - Remove gristle
+  - Lentils, chickpeas
+  - Don't worry about amount consumed
+  - Offer colorful and flavorful foods early and often; options at 1:02:23
+  - See first 100 days meal plan
+- Preparing food for baby
+  - Prioritize finger food from the start
+  - Risk for choking increases if somebody else puts food in baby's mouth
+  - Hemp seeds give grip
+  - Width for food items: 1 to 2 finger widths
+  - Small foods like blueberries and blackbeans are choking hazards
+  - They can be mashed or mixed with sauces
+  - Textures: should be soft enough to be mashed but not so soft they fall apart
+  - Food that can snap (carrots, raw apple, etc.) are not recommended unless cooked
+  - You can offer firm foods which can't break apart, like spare ribs or mango pits
+  - When using pureed foods, leave in lumps for practice with texture
+  - Allow baby to practice loading the spoon themselves
+- Portion size and food waste
+  - Keep portions small at first
+  - Many options can be overwhelming
+  - Don't make food just for your baby, make food for yourself and share
+- Foods to avoid
+  - Foods that might make baby sick
+    - Honey: avoid until over 12 months
+    - Raw or undercooked meats, poultry, seafood
+    - Raw dairy
+  - Choking hazards
+    - Round, slippery, firm foods: peanuts, graps, firm blueberries
+    - Large globs of nutbutters, fishes with bones
+    - Cut up or cook until soft
+  - Processed, sugary, or salty
+- Gagging, Choking and Infant Rescue
+  - Gagging provides baby opportunity to learn
+  - Leaping to the baby's aid can scare them
+  - Can get down low, have them lean forward and put your hand in front of their mouth
+  - Never put your finger in baby's mouth
+  - BLISS study: no differences between baby-lead weaning and purees in terms of choking
+  - Choking is rare, gagging is common
+  - Characteristics of choking hazards: roundness, firmness, slipperyness
+  - What to do if baby is choking: 1:44:40
+    - Call 911 and alternate between back blows (5) and chest thrusts (5)
+  - Choking is rare
+  - Gagging can be ugly and dramatic, but it is not an emergency
+  - If choking, baby will look terrified
+- Cups and Straws
+  - Introduce around 6 months
