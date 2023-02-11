@@ -17,6 +17,7 @@ Notes on books, lectures, etc.
 
 ## Programming
 
+- Structure and Interpretation of Computer Programs
 - The Practice of Programming
 - Advanced Programming in the Unix Environment
 - Code Complete
